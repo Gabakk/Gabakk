@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Gabakk
+- 👀 I’m trying to learn informatic code i really wanna make that my passion
+- 🌱 I’m currently learning well nothing for now but i plan on learning code just like i said
+- 💞️ I’m looking to collaborate on nothing lmao
+- 📫 How to reach me my discord is gabak_corleone 
+- 💎 I fucking love undertale/deltarun
